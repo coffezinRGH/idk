@@ -2,9 +2,8 @@ i
 don't
 know
 what
-am
-i
+i'm
 doing
-about
+with
 my
 life
